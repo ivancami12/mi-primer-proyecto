@@ -12,5 +12,5 @@ El remo con barra es un excelente ejercicio para fortalecer los músculos de la 
 3. Encogimiento de hombros
    El principal músculo implicado en el encogimiento de hombros con mancuernas es el trapecio, que es un músculo grande en forma de diamante situado en la parte superior de la espalda. Concretamente, los encogimientos trabajan la porción de la región del cuello-hombro.
 
-La finalidad de todo esto es enseñar el ejercicio que se deberia hacer, como asi mismo el musculo o parte del cuerpo que se entrenaria, para asi insentibar el constante enfoque a la salud. 
+La finalidad de todo esto es enseñar el ejercicio que se deberia hacer, como asi mismo el musculo o parte del cuerpo que se entrenaria, para asi insentibar el constante enfoque a la salud, como el ejemplo anterior, esta rutina trata de ejercitar la espalda, como los musculos de ella.
    
